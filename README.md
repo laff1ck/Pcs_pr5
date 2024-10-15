@@ -5,5 +5,5 @@
 Практическая работа 5  
 
 
+![ПКС_Видео_5](https://github.com/user-attachments/assets/e162d0d0-c514-4df9-8f68-a7abfe75ecbe)
 
-![Uploading ПКС_Видео_5.gif…]()
